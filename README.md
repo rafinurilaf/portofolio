@@ -53,8 +53,8 @@ Saya seorang Developer yang suka bikin aplikasi web ringan dengan tampilan moder
 
 * **Email:** [email\rafinafirmansyah29@gmail.com](mailto:email_rafinafirmansyah29@gmail.com)
 * **LinkedIn:** [linkedin.com/in/rafinuril](https://www.linkedin.com/in/rafinuril/)
-* **Instagram:** [instagram.com/in/@rfinril] (https://www.instagram.com/rfinril/)
-* **Tiktok:** [tiktok.com/in/@rafiiyrs] (https://www.tiktok.com/@rafiiyrs)
+* **Instagram:** [https://www.instagram.com/rfinril/]
+* **Tiktok:** [https://www.tiktok.com/@rafiiyrs]
 
 ---
 
